@@ -34,3 +34,10 @@ Tärkein kanavamme on [Ultra Kiinteistöt Oy:n Facebook-sivut](https://www.faceb
 * [Ultra Kiinteistöt Oy - Tumblr](https://ultrakiinteistot.tumblr.com/)
 * [Ultra Kiinteistöt Oy - SoundCloud](https://soundcloud.com/ultrakiinteistot)
 * [Ultra Kiinteistöt Oy - WordPress](https://ultrakiinteistot.wordpress.com/)
+
+## Yhteystiedot
+
+Ultra Kiinteistöt Oy
+Kalevankatu 10
+60100 Seinäjoki
+050 4678080
